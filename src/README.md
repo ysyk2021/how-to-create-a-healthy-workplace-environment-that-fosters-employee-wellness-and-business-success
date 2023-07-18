@@ -1,7 +1,5 @@
 # Introduction
 
-Introduction: Overview
-
 Creating a healthy workplace environment is essential for fostering employee wellness and driving business success. That's where "How to Create a Healthy Workplace Environment that Fosters Employee Wellness and Business Success" comes in.
 
 This book provides a comprehensive guide to creating a healthy workplace environment, from workplace wellness to stress management. From leadership development to communication skills, this book covers everything you need to know to create a workplace environment that fosters employee wellness and drives business success.
