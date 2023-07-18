@@ -1,8 +1,5 @@
 # Conclusion
 
-Conclusion
-==========
-
 Creating a healthy workplace environment that fosters employee wellness is essential for business success. By prioritizing workplace health, organizations can improve employee well-being, increase productivity and performance, reduce healthcare costs and absenteeism, and enhance their reputation and brand image. In this book, we have explored various strategies for promoting employee wellness in the workplace.
 
 Recap of Key Takeaways
