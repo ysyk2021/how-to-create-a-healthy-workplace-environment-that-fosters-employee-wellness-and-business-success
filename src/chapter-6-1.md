@@ -1,4 +1,4 @@
-Offering Wellness Programs and Services - Importance of Offering Wellness Programs and Services in the Workplace
+Importance of Offering Wellness Programs and Services in the Workplace
 ===========================================================================================================================
 
 Creating a healthy workplace environment that fosters employee wellness is crucial for both the well-being of employees and the success of the business. In this chapter, we will discuss the importance of offering wellness programs and services in the workplace.

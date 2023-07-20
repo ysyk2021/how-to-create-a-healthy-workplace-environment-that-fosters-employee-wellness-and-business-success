@@ -1,4 +1,4 @@
-Implementation Strategies for Lasting Change - Creating a Roadmap for Creating a Healthy Workplace Environment that Fosters Employee Wellness and Business Success
+Creating a Roadmap for Creating a Healthy Workplace Environment that Fosters Employee Wellness and Business Success
 ==============================================================================================================================================================================
 
 Creating a healthy workplace environment that fosters employee wellness and business success requires a strategic approach to implementation. In this chapter, we will discuss strategies for creating a roadmap for implementing lasting change in the workplace.

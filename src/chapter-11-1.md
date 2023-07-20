@@ -1,4 +1,4 @@
-Incorporating Wellness Practices into Company Culture and Practices - Importance of Incorporating Wellness Practices into Company Culture and Practices
+Importance of Incorporating Wellness Practices into Company Culture and Practices
 ===================================================================================================================================================================
 
 Incorporating wellness practices into company culture and practices is critical for creating a healthy workplace environment that fosters employee well-being and business success. In this chapter, we will discuss the importance of incorporating wellness practices into company culture and practices.

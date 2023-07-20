@@ -1,4 +1,4 @@
-Creating a Culture of Wellness - Overview of Creating a Culture of Wellness in the Workplace
+Overview of Creating a Culture of Wellness in the Workplace
 =======================================================================================================
 
 Creating a culture of wellness is critical for promoting employee well-being and business success. In this chapter, we will provide an overview of creating a culture of wellness in the workplace.

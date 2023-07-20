@@ -1,4 +1,4 @@
-Incorporating Wellness Practices into Company Culture and Practices - Techniques for Integrating These Practices into Decision-Making, Operations, and Governance
+Techniques for Integrating These Practices into Decision-Making, Operations, and Governance
 =============================================================================================================================================================================
 
 Incorporating wellness practices into company culture and practices requires a strategic approach to integration. In this chapter, we will discuss techniques for integrating wellness practices into decision-making, operations, and governance.

@@ -8,5 +8,4 @@ In this book, we'll cover topics such as workplace wellness, employee well-being
 
 This book is like having a workplace wellness and business success expert at your fingertips, ready to guide you through every aspect of creating a healthy workplace environment. By the end of this book, you'll have all the tools and strategies you need to create a workplace environment that fosters employee wellness and drives business success. So let's get started!
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.

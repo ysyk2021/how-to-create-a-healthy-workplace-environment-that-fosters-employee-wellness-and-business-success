@@ -1,4 +1,4 @@
-Overcoming Common Challenges in Promoting Workplace Wellness - Common Challenges in Promoting Workplace Wellness
+Common Challenges in Promoting Workplace Wellness
 ============================================================================================================================
 
 Promoting workplace wellness can be challenging, as there are often barriers that prevent employees from prioritizing their health and well-being. In this chapter, we will discuss common challenges in promoting workplace wellness and strategies for overcoming them.
