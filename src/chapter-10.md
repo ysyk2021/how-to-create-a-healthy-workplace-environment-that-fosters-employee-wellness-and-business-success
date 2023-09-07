@@ -1,5 +1,3 @@
-Chapter 10: Overcoming Common Challenges in Promoting Workplace Wellness
-========================================================================
 
 Promoting workplace wellness can be challenging, particularly in the face of competing priorities and limited resources. In this chapter, we will discuss common challenges in promoting workplace wellness and strategies for overcoming them.
 

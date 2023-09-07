@@ -1,5 +1,3 @@
-Chapter 9: Measuring and Evaluating Workplace Wellness
-======================================================
 
 Measuring and evaluating workplace wellness is essential for creating a healthy workplace environment that fosters employee wellness and business success. In this chapter, we will discuss the importance of measuring and evaluating workplace wellness efforts, as well as techniques for collecting data, analyzing results, and using feedback to inform future strategies.
 

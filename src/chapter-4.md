@@ -1,4 +1,3 @@
-# Chapter 4: Designing a Healthy Workplace Environment
 
 ## Importance of Designing a Healthy Workplace Environment
 

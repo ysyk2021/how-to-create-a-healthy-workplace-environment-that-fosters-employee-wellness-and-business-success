@@ -1,5 +1,3 @@
-Chapter 6: Offering Wellness Programs and Services
-==================================================
 
 In this chapter, we will explore the importance of offering wellness programs and services in the workplace and provide techniques for selecting programs, engaging employees, and measuring their impact.
 

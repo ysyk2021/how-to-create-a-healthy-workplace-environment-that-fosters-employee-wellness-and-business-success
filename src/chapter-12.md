@@ -1,5 +1,3 @@
-Chapter 12: Implementation Strategies for Lasting Change
-========================================================
 
 Implementing lasting change in the workplace requires a strategic approach that takes into account the unique needs and challenges of each organization. In this chapter, we will discuss strategies for implementing lasting change to create a healthy workplace environment that fosters employee wellness and business success.
 

@@ -1,4 +1,3 @@
-# Chapter 7: Nurturing Positive Relationships and Communication
 
 ## Overview of Nurturing Positive Relationships and Communication in the Workplace
 

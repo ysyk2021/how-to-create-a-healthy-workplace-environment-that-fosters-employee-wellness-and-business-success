@@ -1,4 +1,3 @@
-# Techniques for Reducing Stigma, Addressing Concerns, and Providing Resources
 
 In this chapter, we will explore various techniques that can help organizations reduce stigma surrounding mental health, address employee concerns, and provide valuable resources to promote a healthy workplace environment.
 

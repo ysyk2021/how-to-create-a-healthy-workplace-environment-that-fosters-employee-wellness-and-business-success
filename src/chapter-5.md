@@ -1,4 +1,3 @@
-# Chapter 5: Creating a Culture of Wellness
 
 ## Overview of Creating a Culture of Wellness in the Workplace
 

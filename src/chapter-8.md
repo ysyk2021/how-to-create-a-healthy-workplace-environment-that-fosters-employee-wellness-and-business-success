@@ -1,5 +1,3 @@
-Chapter 8: Managing Mental Health and Well-Being
-================================================
 
 Managing mental health and well-being in the workplace is essential for creating a healthy work environment that fosters employee wellness and business success. By reducing stigma, addressing concerns, and providing resources, organizations can promote a culture of mental health and well-being. In this chapter, we will discuss the importance of managing mental health and well-being in the workplace, as well as techniques for reducing stigma, addressing concerns, and providing resources.
 

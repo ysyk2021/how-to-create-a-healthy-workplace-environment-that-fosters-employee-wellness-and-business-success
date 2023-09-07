@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 In this book, we will explore the importance of creating a healthy workplace environment that fosters employee wellness and business success. A healthy workplace environment not only benefits employees, but also leads to improved productivity, increased job satisfaction, and reduced healthcare costs for employers.
 

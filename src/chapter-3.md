@@ -1,4 +1,3 @@
-# Chapter 3: Assessing Current Workplace Health and Wellness
 
 ## Overview of Assessing Current Workplace Health and Wellness
 

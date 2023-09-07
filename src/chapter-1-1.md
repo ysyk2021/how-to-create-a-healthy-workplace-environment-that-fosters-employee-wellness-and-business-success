@@ -1,5 +1,3 @@
-The Importance of Creating a Healthy Workplace Environment that Fosters Employee Wellness and Business Success
-=======================================================================================================================================
 
 Creating a healthy workplace environment that fosters employee wellness is essential for business success. When employees are healthy, engaged, and motivated, they are more likely to perform at their best and contribute to the organization's overall success. In this chapter, we will introduce the importance of creating a healthy workplace environment that fosters employee wellness and business success.
 

@@ -1,4 +1,3 @@
-# Chapter 11: Incorporating Wellness Practices into Company Culture and Practices
 
 ## Importance of Incorporating Wellness Practices into Company Culture and Practices
 

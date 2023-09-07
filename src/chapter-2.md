@@ -1,5 +1,3 @@
-Chapter 2: Understanding Workplace Wellness
-===========================================
 
 Understanding workplace wellness is essential for creating a healthy workplace environment that supports employee well-being and business success. By defining workplace wellness and understanding the benefits of promoting employee wellness, organizations can develop strategies to prioritize employee health and well-being. In this chapter, we will discuss the definition of workplace wellness and the benefits of promoting employee wellness for individuals and organizations.
 
