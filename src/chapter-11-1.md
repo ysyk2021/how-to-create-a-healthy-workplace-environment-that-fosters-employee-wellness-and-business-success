@@ -1,5 +1,4 @@
-Chapter 7: Importance of Incorporating Wellness Practices into Company Culture and Practices
-============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of incorporating wellness practices into company culture and everyday practices. We will discuss how a strong emphasis on employee well-being can lead to improved productivity, increased job satisfaction, and overall business success.
 

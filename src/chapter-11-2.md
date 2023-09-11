@@ -1,5 +1,4 @@
-Chapter 8: Techniques for Integrating Wellness Practices into Decision-Making, Operations, and Governance
-=========================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques that organizations can utilize to integrate wellness practices into their decision-making processes, day-to-day operations, and overall governance. By incorporating wellness at every level, organizations can create a sustainable and holistic approach to employee well-being and business success.
 

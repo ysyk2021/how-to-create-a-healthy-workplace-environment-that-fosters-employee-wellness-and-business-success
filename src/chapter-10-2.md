@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Overcoming Challenges
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for overcoming the challenges that organizations may face when creating a healthy workplace environment that fosters employee wellness and business success. By proactively addressing these challenges, organizations can enhance their chances of successfully implementing wellness initiatives.
 

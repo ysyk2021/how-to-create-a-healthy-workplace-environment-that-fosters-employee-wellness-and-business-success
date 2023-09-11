@@ -1,5 +1,4 @@
-Chapter 2: Overview of Nurturing Positive Relationships and Communication in the Workplace
-==========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of nurturing positive relationships and effective communication in creating a healthy workplace environment that fosters employee wellness and business success.
 
